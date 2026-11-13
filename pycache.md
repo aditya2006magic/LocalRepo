@@ -1,3 +1,5 @@
+https://chatgpt.com/share/6af7647c-4e3c-83ec-900e-21a70e74d6c3
+
 Here is a comprehensive profile of **everything I currently know about you**, based on our previous conversations, remembered information, and documents you've shared.
 
 I've organized it into sections so you can see what I know about your identity, education, personality, technical skills, projects, achievements, interests, relationships, and experiences.
